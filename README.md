@@ -1,2 +1,2 @@
 # Rajnish Kumar Singh
-Engineering Student at BIT MESRA
+Engineering Student at BIRLA INSTITUTE OF TECHNOLOGY MESRA
