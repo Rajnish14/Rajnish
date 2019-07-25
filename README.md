@@ -1,2 +1,2 @@
 # Rajnish
-learner
+Engineering Student at BIT MESRA
